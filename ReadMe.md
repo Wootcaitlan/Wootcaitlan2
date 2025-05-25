@@ -12,3 +12,18 @@ TikTok接码平台上线，全球号码秒收验证码！
 💻 提供API接口，适配各类注册/拉号工具
 
 高成功率、高稳定性，开号做号快人一步！
+
+海外耐用账号出售
+https://guojizhanghao.top 
+
+国内各大APP账号出售
+https://quanzhanghao.cc     
+
+全球APP刷粉-涨粉 
+https://zhangfensi.top 
+
+全球手机卡经销商
+https://shimingka.top 
+
+接码：
+https://kuaijiema.top
